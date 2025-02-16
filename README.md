@@ -7,5 +7,4 @@
 
 [![photo-2025-02-10-22-11-24.jpg](https://i.postimg.cc/44FxqDRP/photo-2025-02-10-22-11-24.jpg)](https://postimg.cc/NLmtrPM2)
 
-# 3-
-cda276710ed407f0d6fff5c5b93d419162b6d437
+
